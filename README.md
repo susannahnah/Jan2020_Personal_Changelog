@@ -15,3 +15,14 @@ The purpose of this personal changelog was to keep a visual record of my progres
 7. Drink 2L of water daily 
 
 ***
+
+##### Thurs Jan. 2nd, 2020(!!):
+- [ ] Started new Prime Assignment
+- [ ] Began new learning module
+- [x] Bought keto-friendly foods to begin diet, prepped food
+- [x] Continuing to read China Rich Girlfriend by Kevin Kwan
+- [x] Got 7 hours of sleep
+- [x] drank 2L of water
+- [x] joined kickboxing class
+
+#
